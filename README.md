@@ -1,7 +1,7 @@
 # Grandpashabet 🎰 Grandpashabet Giriş 🔑 Grandpasha Bonus
 
 
-# [Grandpashabet Giriş için Tıklayın ve Deneme Bonusu Alın ](https://cutt.ly/EreytWq9)
+# [Grandpashabet Giriş için Tıklayın ve Deneme Bonusu Alın ](http://winzhub.org/)
 
 <br>
 
